@@ -1,1 +1,0 @@
-# OkorokovI_27july2024
